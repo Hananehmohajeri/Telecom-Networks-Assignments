@@ -1,2 +1,0 @@
-# Telecom-Networks-Assignments
-
